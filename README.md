@@ -1,5 +1,5 @@
 # my-notes
-## itrodusing my self 
+## introdusing my self 
 hi my name is bashar almharait
 lives in amman jordan 
 frome amman jordan 
